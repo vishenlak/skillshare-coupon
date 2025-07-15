@@ -88,11 +88,7 @@ Just follow these steps to claim a Skillshare promo code.
 
 **Step 5:** Finally, **enter your payment details** to complete the order. You can pay using a credit or debit card.
 
-## How Does Skillshare Cost?
-
-Here's a breakdown of **Skillshare's pricing**:
-
-### **How Much Does Skillshare Cost?**
+## **How Much Does Skillshare Cost?**
 
 If you’ve ever wished to learn freely without boundaries, Skillshare makes that dream accessible with flexible pricing made just for curious minds like yours.
 
